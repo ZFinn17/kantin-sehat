@@ -1,3 +1,1 @@
 # kantin-sehat
-
-bjirrrrrrrrrrrrrrrrrrrrrrrrrr
